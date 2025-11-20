@@ -1,2 +1,0 @@
-# jene
-detials
